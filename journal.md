@@ -4,3 +4,5 @@ I enjoy playing Osu! Osu! is a rythym game where you click circles. i foind this
 You explained the instructions perfectly. For me I, it was a mistake of making one letter capitalized because I naturally capitalize first lettter of every word.
 # September 17, 2024
 This is a free week.
+# September 27, 2024
+It is important to follow instuctions while coding becauase having one wrong thing could cause the entire code to not work. Following the instruction will get you a working code. If you dont follow instructions then your code will not work.

@@ -6,3 +6,6 @@ You explained the instructions perfectly. For me I, it was a mistake of making o
 This is a free week.
 # September 27, 2024
 It is important to follow instuctions while coding becauase having one wrong thing could cause the entire code to not work. Following the instruction will get you a working code. If you dont follow instructions then your code will not work.
+# October 2, 2024
+When i play games that uses cpmuter science and coding.
+# October 8, 2024

@@ -9,3 +9,5 @@ It is important to follow instuctions while coding becauase having one wrong thi
 # October 2, 2024
 When i play games that uses cpmuter science and coding.
 # October 8, 2024
+# October 16, 2024
+Coding can improve problem solving by giving us different methods. Coding can keep track of records. Coding could ehance creativity by making us think of new ideas to track something.

@@ -11,3 +11,5 @@ When i play games that uses cpmuter science and coding.
 # October 8, 2024
 # October 16, 2024
 Coding can improve problem solving by giving us different methods. Coding can keep track of records. Coding could ehance creativity by making us think of new ideas to track something.
+# October 21, 2024
+AI could improve by making codes really fast and require less humans that make error. It could be harmful because the AI might turn against us and leak our data.

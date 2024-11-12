@@ -15,3 +15,5 @@ Coding can improve problem solving by giving us different methods. Coding can ke
 AI could improve by making codes really fast and require less humans that make error. It could be harmful because the AI might turn against us and leak our data.
 # October 28, 2024
 The computer could impact the election by counting the votes wrong, which would affect the US because it would cause a loud uproar.
+# November 4, 2024
+Its important to keep your information safe so that it doesnt get leaked online. You can enable 2FA so that it is more secure. I have not shared anything online but if i did i would make sure to change my information if it was important. You can not share private information when doing collaborative activites and share stuff that is less personal and private.

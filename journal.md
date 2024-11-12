@@ -17,3 +17,6 @@ AI could improve by making codes really fast and require less humans that make e
 The computer could impact the election by counting the votes wrong, which would affect the US because it would cause a loud uproar.
 # November 4, 2024
 Its important to keep your information safe so that it doesnt get leaked online. You can enable 2FA so that it is more secure. I have not shared anything online but if i did i would make sure to change my information if it was important. You can not share private information when doing collaborative activites and share stuff that is less personal and private.
+# November 12, 2024
+A current event would be the politics goin on right now. The things we learned in class goes well with this becuase they use technology in politics.
+The advancements of technology could benefit politics by making it better. 

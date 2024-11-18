@@ -20,3 +20,5 @@ Its important to keep your information safe so that it doesnt get leaked online.
 # November 12, 2024
 A current event would be the politics goin on right now. The things we learned in class goes well with this becuase they use technology in politics.
 The advancements of technology could benefit politics by making it better. 
+# November 18, 2024
+I think techonology could make food more affordable and accessable by making records of what if bought in stores and suplying more to those items. The negative side affect of this is that it could be wrong and could supply wrong things or be a wrong location.

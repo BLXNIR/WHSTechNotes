@@ -22,3 +22,5 @@ A current event would be the politics goin on right now. The things we learned i
 The advancements of technology could benefit politics by making it better. 
 # November 18, 2024
 I think techonology could make food more affordable and accessable by making records of what if bought in stores and suplying more to those items. The negative side affect of this is that it could be wrong and could supply wrong things or be a wrong location.
+# December 2, 2024
+AI could impact everyones life by making it easier but could also cause issues. One way it could cause a good impact is like helping people with their work. A bad impact it could have would be making people unemployed. The thing that excites me about AI, is that it could be more human, so I could cheat on my assignments. Ai could be used in my field of interest (gaming) it could make a game one day just by me telling it what to do. The ethical consideration would be to have more jobs that need people before having technology steal jobs from people.

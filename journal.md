@@ -28,3 +28,5 @@ AI could impact everyones life by making it easier but could also cause issues. 
 Brainrot to me means a lifestyle. I believe comsuming brainrot on the internet is bad for those who can;t handle it. Slop and lore connect to my experience to technology because it describes it perfectly. You can avoid brainrot by simply not following account that post it and not liking
 # December 16, 2024
 Yes, I am looking foward to winter breaks so that I can grind the game Marvel Rivals.
+# January 8, 2025
+Last semester I enjoyed the friends I made along the way. We cannot improve nothing because it is perfect the way it is. Id like to learn or do whatever that is easy. I am not interested in pursuing anything, im taking this class for fun.

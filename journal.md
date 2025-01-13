@@ -30,3 +30,5 @@ Brainrot to me means a lifestyle. I believe comsuming brainrot on the internet i
 Yes, I am looking foward to winter breaks so that I can grind the game Marvel Rivals.
 # January 8, 2025
 Last semester I enjoyed the friends I made along the way. We cannot improve nothing because it is perfect the way it is. Id like to learn or do whatever that is easy. I am not interested in pursuing anything, im taking this class for fun.
+# January 13, 2025
+This shift from prioritizing ai over tech workers woukd be good and bad because of the erros they make but they can both be good. I believe ai tools will definitely enhance workers. I will learn how to do something ai isnt taking over.

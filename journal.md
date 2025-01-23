@@ -32,3 +32,5 @@ Yes, I am looking foward to winter breaks so that I can grind the game Marvel Ri
 Last semester I enjoyed the friends I made along the way. We cannot improve nothing because it is perfect the way it is. Id like to learn or do whatever that is easy. I am not interested in pursuing anything, im taking this class for fun.
 # January 13, 2025
 This shift from prioritizing ai over tech workers woukd be good and bad because of the erros they make but they can both be good. I believe ai tools will definitely enhance workers. I will learn how to do something ai isnt taking over.
+# January 22, 2025
+The tiktok banning relates to this class because they banned it because it shows how the government didnt want our data and inopramtion to be taken by chinese government.

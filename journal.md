@@ -34,3 +34,4 @@ Last semester I enjoyed the friends I made along the way. We cannot improve noth
 This shift from prioritizing ai over tech workers woukd be good and bad because of the erros they make but they can both be good. I believe ai tools will definitely enhance workers. I will learn how to do something ai isnt taking over.
 # January 22, 2025
 The tiktok banning relates to this class because they banned it because it shows how the government didnt want our data and inopramtion to be taken by chinese government.
+# January 27, 2025

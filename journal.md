@@ -35,3 +35,5 @@ This shift from prioritizing ai over tech workers woukd be good and bad because 
 # January 22, 2025
 The tiktok banning relates to this class because they banned it because it shows how the government didnt want our data and inopramtion to be taken by chinese government.
 # January 27, 2025
+# February 3, 2025
+Technology could be integrated into aviation by helping it. This is good because it could increase the safety.

@@ -41,3 +41,7 @@ Technology could be integrated into aviation by helping it. This is good because
 |Shape |Color |Count |
 |-----|-----|-----|
 |Circle|Green|7|
+|Square|Yellow|5|
+|Hexagon|Brown|6|
+|Triangle|Purple|4|
+|Octogon|Red|3|

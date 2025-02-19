@@ -45,3 +45,5 @@ Technology could be integrated into aviation by helping it. This is good because
 |Hexagon|Brown|6|
 |Triangle|Purple|4|
 |Octogon|Red|3|
+# February 18, 2025
+I learned that im really good with Mr fantastic in marvel rivals. I learned it because i played him and i destroyed the lobby. I found it interesting because I played in a high ranking lobby and i barely knew how to play mr fantastic.

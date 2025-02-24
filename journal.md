@@ -47,3 +47,5 @@ Technology could be integrated into aviation by helping it. This is good because
 |Octogon|Red|3|
 # February 18, 2025
 I learned that im really good with Mr fantastic in marvel rivals. I learned it because i played him and i destroyed the lobby. I found it interesting because I played in a high ranking lobby and i barely knew how to play mr fantastic.
+# February 24, 2025
+Technology can help educators and service provider with new slang by being able to show them the definition. The benefits is that itll help the youth understand and the downfall is that it woudlnt sound good if used incorrectly. I think schools should integrate slang because i believe it would make people enjoy it more. Misunderstanding could lead to bad stuff happening which is why it proabably snt used.

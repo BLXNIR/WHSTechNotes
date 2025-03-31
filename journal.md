@@ -51,3 +51,5 @@ I learned that im really good with Mr fantastic in marvel rivals. I learned it b
 Technology can help educators and service provider with new slang by being able to show them the definition. The benefits is that itll help the youth understand and the downfall is that it woudlnt sound good if used incorrectly. I think schools should integrate slang because i believe it would make people enjoy it more. Misunderstanding could lead to bad stuff happening which is why it proabably snt used.
 # March 24, 2025
 The tech influenced tourneys by making it it not feel legit. yes I think it is helpful that ai helps excite brackets and stuff.
+# March 31, 2025
+I feel emotionally, physically, and mantally fine. The most stressful part of school is the classwork. To take care of myself during stressful times is to not do whatver is making me stressed and completely dropping it. One goal for the schol year is to pass, and i will accomplish this by doing the bare minimum work to pass. A person I trust is Jasmine because she's trustworthy.

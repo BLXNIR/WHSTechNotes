@@ -54,4 +54,4 @@ The tech influenced tourneys by making it it not feel legit. yes I think it is h
 # March 31, 2025
 I feel emotionally, physically, and mantally fine. The most stressful part of school is the classwork. To take care of myself during stressful times is to not do whatver is making me stressed and completely dropping it. One goal for the schol year is to pass, and i will accomplish this by doing the bare minimum work to pass. A person I trust is Jasmine because she's trustworthy.
 # April 7, 2025
-Ai can help imporve testing scores by making it easier for us to pass and for the grades to be graded eaily and fast.
+AI can help by giving us the answers and making it easy for us. i wouldnt use it because im smart and dont need prep time.

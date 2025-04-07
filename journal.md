@@ -53,3 +53,5 @@ Technology can help educators and service provider with new slang by being able 
 The tech influenced tourneys by making it it not feel legit. yes I think it is helpful that ai helps excite brackets and stuff.
 # March 31, 2025
 I feel emotionally, physically, and mantally fine. The most stressful part of school is the classwork. To take care of myself during stressful times is to not do whatver is making me stressed and completely dropping it. One goal for the schol year is to pass, and i will accomplish this by doing the bare minimum work to pass. A person I trust is Jasmine because she's trustworthy.
+# April 7, 2025
+Ai can help imporve testing scores by making it easier for us to pass and for the grades to be graded eaily and fast.

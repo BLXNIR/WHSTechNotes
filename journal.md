@@ -55,3 +55,6 @@ The tech influenced tourneys by making it it not feel legit. yes I think it is h
 I feel emotionally, physically, and mantally fine. The most stressful part of school is the classwork. To take care of myself during stressful times is to not do whatver is making me stressed and completely dropping it. One goal for the schol year is to pass, and i will accomplish this by doing the bare minimum work to pass. A person I trust is Jasmine because she's trustworthy.
 # April 7, 2025
 AI can help by giving us the answers and making it easy for us. i wouldnt use it because im smart and dont need prep time.
+# April 14, 2025
+These bans are detrimental to students. These policies would make it worse for students because some need time away from work to focus. I would 808 crashout if they band phones because ts would pmo icl tbh.
+# April 22, 2025

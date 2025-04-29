@@ -58,3 +58,9 @@ AI can help by giving us the answers and making it easy for us. i wouldnt use it
 # April 14, 2025
 These bans are detrimental to students. These policies would make it worse for students because some need time away from work to focus. I would 808 crashout if they band phones because ts would pmo icl tbh.
 # April 22, 2025
+# April 28, 2025
+| Name | Flavor | Occasion | Price |
+|------|-------|--------|--------|
+|Sally|Chocolate|Graduation|$35.00|
+|Michael|Vanilla|Farewell Party|$37.00|
+|Emma|Carrot|Birthday|$39.00|

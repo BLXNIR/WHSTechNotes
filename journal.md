@@ -64,3 +64,5 @@ These bans are detrimental to students. These policies would make it worse for s
 |Sally|Chocolate|Graduation|$35.00|
 |Michael|Vanilla|Farewell Party|$37.00|
 |Emma|Carrot|Birthday|$39.00|
+# May 5th, 2025
+I think the humans because they can last longer. I think its very responsible because it will show how capable people are. I also believe Mrbeast should make a video on this topic. Trends spread online have great topics to debate about and get the community involved.

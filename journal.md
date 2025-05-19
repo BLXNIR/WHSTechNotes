@@ -68,3 +68,5 @@ These bans are detrimental to students. These policies would make it worse for s
 I think the humans because they can last longer. I think its very responsible because it will show how capable people are. I also believe Mrbeast should make a video on this topic. Trends spread online have great topics to debate about and get the community involved.
 # May 12, 2025
 This trend isnt ethical. Using tech responsibly is important cause it could blow up killing everybody. A real world consequence could lead yu in jail because yu could accidently hurt someone seriously.
+# May 19, 2025
+Im ready for summer because I get to play Marvel Rivals all day and im gonna get atleast 10 more lords.

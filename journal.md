@@ -70,3 +70,5 @@ I think the humans because they can last longer. I think its very responsible be
 This trend isnt ethical. Using tech responsibly is important cause it could blow up killing everybody. A real world consequence could lead yu in jail because yu could accidently hurt someone seriously.
 # May 19, 2025
 Im ready for summer because I get to play Marvel Rivals all day and im gonna get atleast 10 more lords.
+# September 2, 2025
+The new cell phone law is horrible. This is no where near bnenficial because I can't watch reels on my phone and the challenges are that noone can listen to music in class becuase we cant have electronics. I really wish this got removed because i hate paying attention in class and doing work.

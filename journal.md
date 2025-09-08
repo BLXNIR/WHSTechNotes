@@ -72,3 +72,5 @@ This trend isnt ethical. Using tech responsibly is important cause it could blow
 Im ready for summer because I get to play Marvel Rivals all day and im gonna get atleast 10 more lords.
 # September 2, 2025
 The new cell phone law is horrible. This is no where near bnenficial because I can't watch reels on my phone and the challenges are that noone can listen to music in class becuase we cant have electronics. I really wish this got removed because i hate paying attention in class and doing work.
+# September 8, 2025
+I wanna be a statician, Computer science works with this because itll help me woth data. I said this because i met a teacher who has used computer science for statistics.

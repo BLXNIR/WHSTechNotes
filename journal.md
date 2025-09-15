@@ -74,3 +74,5 @@ Im ready for summer because I get to play Marvel Rivals all day and im gonna get
 The new cell phone law is horrible. This is no where near bnenficial because I can't watch reels on my phone and the challenges are that noone can listen to music in class becuase we cant have electronics. I really wish this got removed because i hate paying attention in class and doing work.
 # September 8, 2025
 I wanna be a statician, Computer science works with this because itll help me woth data. I said this because i met a teacher who has used computer science for statistics.
+# September 16, 2025
+We can have ai find the best way to solve real world problems and have them create a solution.

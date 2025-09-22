@@ -76,3 +76,5 @@ The new cell phone law is horrible. This is no where near bnenficial because I c
 I wanna be a statician, Computer science works with this because itll help me woth data. I said this because i met a teacher who has used computer science for statistics.
 # September 16, 2025
 We can have ai find the best way to solve real world problems and have them create a solution.
+# September 22, 2025
+I think its a good idea because Ill be able to play games and do work at home in comfort.

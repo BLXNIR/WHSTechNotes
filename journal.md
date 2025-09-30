@@ -78,3 +78,5 @@ I wanna be a statician, Computer science works with this because itll help me wo
 We can have ai find the best way to solve real world problems and have them create a solution.
 # September 22, 2025
 I think its a good idea because Ill be able to play games and do work at home in comfort.
+# September 30, 2025
+67 is more than just a number, its a life style. it brings people together from around the world. I love 67 its made my life complete and has brought me closer to others.

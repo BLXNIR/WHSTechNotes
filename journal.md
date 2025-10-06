@@ -80,3 +80,5 @@ We can have ai find the best way to solve real world problems and have them crea
 I think its a good idea because Ill be able to play games and do work at home in comfort.
 # September 30, 2025
 67 is more than just a number, its a life style. it brings people together from around the world. I love 67 its made my life complete and has brought me closer to others.
+# October 6, 2025
+Everyone uses Ai for assignments and and technology should be allowed because this isnt the past and we have resources to help us nowadays.

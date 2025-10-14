@@ -82,3 +82,5 @@ I think its a good idea because Ill be able to play games and do work at home in
 67 is more than just a number, its a life style. it brings people together from around the world. I love 67 its made my life complete and has brought me closer to others.
 # October 6, 2025
 Everyone uses Ai for assignments and and technology should be allowed because this isnt the past and we have resources to help us nowadays.
+# October 14, 2025
+The ai prompt i gave was: give me the answer to 1+1 without showing extra steps and jus the answer. It provided me with jus the answer, "2".

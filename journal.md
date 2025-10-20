@@ -84,3 +84,9 @@ I think its a good idea because Ill be able to play games and do work at home in
 Everyone uses Ai for assignments and and technology should be allowed because this isnt the past and we have resources to help us nowadays.
 # October 14, 2025
 The ai prompt i gave was: give me the answer to 1+1 without showing extra steps and jus the answer. It provided me with jus the answer, "2".
+# october 20, 2025
+| Name | Class | Seat |
+|------|-------|--------|
+|Marla|First|Seat 35B|
+|Franklin|Second|Seat 91A|
+|Hardeep|Third|Seat 61F|

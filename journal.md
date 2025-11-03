@@ -96,3 +96,5 @@ The ai prompt i gave was: give me the answer to 1+1 without showing extra steps 
 |Fiona|Gado Gado|Creme Brulee|
 |Tobias|Shrimp Ceviche|French Applecake|
 |Leanne|Beef Welington|Rasberry Tiramisu|
+# November 3, 2025
+this journal is excused.

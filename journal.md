@@ -100,3 +100,5 @@ The ai prompt i gave was: give me the answer to 1+1 without showing extra steps 
 this journal is excused.
 # November 10, 2025
 Things I learned this year was how to play clash royale. I learned how to manage my elixir, placement of cards, and how to counter megaknight. Im proud of how far i've gotten in clash royale. I've gone up almost 6k trophies soon and I plan to reach new higher arenas in the future.
+# November 17, 2025
+Yes, I am looking foward to Thanksgiving Break.

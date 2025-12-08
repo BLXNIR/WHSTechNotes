@@ -104,3 +104,5 @@ Things I learned this year was how to play clash royale. I learned how to manage
 Yes, I am looking foward to Thanksgiving Break.
 # December 1, 2025
 Amazon use drones. Programers use the program to use drones. They get paid a lot. You need to know how to program. No because too much programming.
+# December 8, 2025
+The self driving cars might fail because it isnt human and it sometimes can have malfunctions which could lead to accidents.

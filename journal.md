@@ -108,3 +108,5 @@ Amazon use drones. Programers use the program to use drones. They get paid a lot
 The self driving cars might fail because it isnt human and it sometimes can have malfunctions which could lead to accidents.
 # December 15, 2025
 my plans for winter break are playing clash and rivals.
+# January 6, 2026
+I used technology ober the break by playing games, watching tv, and using my phone to watcvh reels.

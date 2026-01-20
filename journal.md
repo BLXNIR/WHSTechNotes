@@ -110,5 +110,7 @@ The self driving cars might fail because it isnt human and it sometimes can have
 my plans for winter break are playing clash and rivals.
 # January 6, 2026
 I used technology ober the break by playing games, watching tv, and using my phone to watcvh reels.
-# January 12, 2025
+# January 12, 2026
 Autocraft was made to create a safe space on minecraft. Creating safe spaces allows everyone to have fun without being harrassed.
+# January 20, 2026
+I dont believe that technology can create a more fair and just society because in order to create a more fair and just society, people need to forget our differences and learn to one another.

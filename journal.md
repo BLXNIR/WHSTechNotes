@@ -114,3 +114,5 @@ I used technology ober the break by playing games, watching tv, and using my pho
 Autocraft was made to create a safe space on minecraft. Creating safe spaces allows everyone to have fun without being harrassed.
 # January 20, 2026
 I dont believe that technology can create a more fair and just society because in order to create a more fair and just society, people need to forget our differences and learn to one another.
+# January 29, 2026
+I have taken both the ACT and SAT. No, I did not get the score i wanted. No because I would forget it all.

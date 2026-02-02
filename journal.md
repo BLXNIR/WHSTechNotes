@@ -116,3 +116,5 @@ Autocraft was made to create a safe space on minecraft. Creating safe spaces all
 I dont believe that technology can create a more fair and just society because in order to create a more fair and just society, people need to forget our differences and learn to one another.
 # January 29, 2026
 I have taken both the ACT and SAT. No, I did not get the score i wanted. No because I would forget it all.
+# February 2, 2026
+Personal hygiene and self care are important becasue you dont want to hurt other with yoour stench. Distracting things can affect others because they wont be able to work at their max potential. Reasonable expectations should be doing stuff that wouldnt bother others and better yourself. Self regulation is important because you wont distract others. my communication cna use work.

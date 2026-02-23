@@ -120,3 +120,5 @@ I have taken both the ACT and SAT. No, I did not get the score i wanted. No beca
 Personal hygiene and self care are important becasue you dont want to hurt other with yoour stench. Distracting things can affect others because they wont be able to work at their max potential. Reasonable expectations should be doing stuff that wouldnt bother others and better yourself. Self regulation is important because you wont distract others. my communication cna use work.
 # February 10, 2026
 Yes, because I like watching sweaty men tackle eachother. No i did not watch the superbowl. I only watched the halftime show and it sucked.
+# February 23, 2026
+They use communication and streaming stuff at the olympics.

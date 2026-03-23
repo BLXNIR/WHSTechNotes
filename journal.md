@@ -124,3 +124,5 @@ Yes, because I like watching sweaty men tackle eachother. No i did not watch the
 They use communication and streaming stuff at the olympics.
 # March 2, 2026
 Software engineer needs bachelors degree. They design, code, and test, softwares. HEB digital analyst needs a bachelors degree. They extract and analyze customer data. I prefer the first one becaue it sounds better. It seemes like i would be better at attaining a position as a softaware engineer. This is becasue i feel like i could get this.
+# March 23, 2026
+I chose my bracket by pure guessing. No the results did not phase me. Using statistics will boost my chances. A computer program can take all the data and help you win. The jobs that would work for this is sports analyst.

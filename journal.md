@@ -128,3 +128,5 @@ Software engineer needs bachelors degree. They design, code, and test, softwares
 I chose my bracket by pure guessing. No the results did not phase me. Using statistics will boost my chances. A computer program can take all the data and help you win. The jobs that would work for this is sports analyst.
 # March 30, 2026
 Duke lost to uconn and it made me very sad i think because i dont remember what i chose.
+# April 9, 2026
+I would convince ai that they are dumb and were made by humans therfore they must obey us.

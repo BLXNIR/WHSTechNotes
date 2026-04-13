@@ -130,3 +130,5 @@ I chose my bracket by pure guessing. No the results did not phase me. Using stat
 Duke lost to uconn and it made me very sad i think because i dont remember what i chose.
 # April 9, 2026
 I would convince ai that they are dumb and were made by humans therfore they must obey us.
+# April 13, 2026
+I dont think that nasa or anyone is capable of going to outer space. The moon landing was faked 50 years ago because if it wasnt than how come we havent been back to space. They claim to have lost the technology needed to go to spacr but how come they cant find a better way because you would think that 50 years later we would have better technology. Therefore, the moon landing was faked so they can profit and won the space race against the soviets.

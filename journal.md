@@ -134,3 +134,5 @@ I would convince ai that they are dumb and were made by humans therfore they mus
 I dont think that nasa or anyone is capable of going to outer space. The moon landing was faked 50 years ago because if it wasnt than how come we havent been back to space. They claim to have lost the technology needed to go to spacr but how come they cant find a better way because you would think that 50 years later we would have better technology. Therefore, the moon landing was faked so they can profit and won the space race against the soviets.
 # April 20, 2026
 Ai makes people question whether things are real or not.
+# April 27, 2026
+This week I paid attention to resident evil 4 remake. I played on my ps5 and got s+ rank on preffesional difficulty.

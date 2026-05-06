@@ -136,3 +136,5 @@ I dont think that nasa or anyone is capable of going to outer space. The moon la
 Ai makes people question whether things are real or not.
 # April 27, 2026
 This week I paid attention to resident evil 4 remake. I played on my ps5 and got s+ rank on preffesional difficulty.
+# May 6, 2026
+I think we are definitely training ai because the companies collect data to track everything we do, and they can implement all that info into ai.

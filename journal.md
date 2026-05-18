@@ -140,3 +140,5 @@ This week I paid attention to resident evil 4 remake. I played on my ps5 and got
 I think we are definitely training ai because the companies collect data to track everything we do, and they can implement all that info into ai.
 # May 11, 2026
 I grew in learning how cheat the system of assignments and projects. I learned to slack off efficiently in all my classes. In 10th grade i almost failed all my classes, but this year I learned how to skip lots of porjects and assignments in way that i wouldnt fail.
+# May 18, 2026
+I would describe Jian as a intelligent asian who wears hats/beanies about 5'6 and rides a bike.
